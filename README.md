@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## KevDog is a nickname I was given in college and it is--by far--the coolest nickname I've been called.
+#### KevDog is a nickname I was given in college and it is--by far--the coolest nickname I've been called.
 
 - 🔭 I’m currently working on (ask me in three weeks or so)
 - 🌱 I’m currently learning to play jazz vibraphone and marimba.

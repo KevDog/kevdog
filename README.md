@@ -2,7 +2,7 @@
 
 #### KevDog is a nickname I was given in college and it is--by far--the coolest nickname I've been called.
 
-- 🔭 I’m currently working on (ask me in three weeks or so)
+- 🔭 I’m currently working a Senior Technical Program Manager for GitHub Enterprise
 - 🌱 I’m currently learning to play jazz vibraphone and marimba.
 - 📫 How to reach me: Here or @kevdog on Twitter
 - 😄 Pronouns: He/Him

@@ -24,8 +24,6 @@ Personal Goals:
 
 Known Gaps I want to focus on and need my leader’s support and help:
 
-Social awkwardness
-
 Coaching others
 
 

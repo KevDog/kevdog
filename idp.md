@@ -27,6 +27,6 @@ Social awkwardness
 Coaching others
 
 
-In 1H FY22, I will do these three things to grow as a leader / practitioner:
+In 1H FY23, I will do these three things to grow as a leader / practitioner:
 Acquire a mentor of some kind
 

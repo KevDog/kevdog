@@ -4,7 +4,7 @@
 
 
 - 🌱 I’m currently learning to play jazz vibraphone and marimba.
-- 📫 How to reach me: Here or @kevdog on Twitter
+- 📫 How to reach me: Here or @kevdog on Bluesky
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am the only person in the world who has a CS degree, an acting degree, and has worked for Siegfried and Roy.
 

@@ -2,9 +2,10 @@
 
 #### KevDog is a nickname I was given in college and it is--by far--the coolest nickname I've been given.
 
-
-- 🌱 I’m currently learning to play jazz vibraphone and marimba.
-- 📫 How to reach me: Here or @kevdog on Bluesky
+- Ex-Hubber
+- Agile 202x Conference Chair, Program Chair, etc.
+- 🌱 Learning to play jazz vibraphone and marimba.
+- 📫 @kevdog on Bluesky
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am the only person in the world who has a CS degree, an acting degree, and has worked for Siegfried and Roy.
 

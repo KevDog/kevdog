@@ -7,7 +7,7 @@
 - 🌱 Learning to play jazz vibraphone and marimba.
 - 📫 @kevdog on Bluesky
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am the only person in the world who has a CS degree, an acting degree, and has worked for Siegfried and Roy.
+- ⚡ Useless fact: I am the only person in the world who has a CS degree, an acting degree, and has worked for Siegfried and Roy. There might have been another one, but, you know.
 
 <!--
 - 👯 I’m looking to collaborate on ...
